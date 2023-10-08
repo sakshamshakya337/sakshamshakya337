@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **Sakshamshakya337@gmail.com**
 
-- 📄 Know about my experiences [https://zesty-figolla-18760e.netlify.app/](https://zesty-figolla-18760e.netlify.app/)
+- 📄 Know about my experiences [https://sakshamshakya.tech/](https://Sakshamshakya.tech
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
