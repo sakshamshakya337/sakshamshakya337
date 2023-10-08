@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **Sakshamshakya337@gmail.com**
 
-- 📄 Know about my experiences [https://sakshamshakya.tech/](https://Sakshamshakya.tech
+- 📄 Know about my experiences https://sakshamshakya.tech/
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
